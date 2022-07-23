@@ -1,1 +1,1 @@
-# salon.com
+# Beauty salon.com
